@@ -1,1 +1,1 @@
-# Juan-Jose-Vega
+# informatica industrial
